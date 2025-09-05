@@ -15,7 +15,7 @@ Email Me 👉 ✉️ **imtobii3D@gmail.com** For Collaboration/Project or Anythi
 
 
 - 🔭 **I’m currently working on:** FiveM Projects: Cars - Scripts - MLO's.
-- 📫 **How to reach me:** futivesdevs@gmail.com
+- 📫 **How to reach me:** imtobii3d@gmail.com
 - 🌱 **Working on Positive Development**
 - ⚡ **CFX**
 
