@@ -1,6 +1,6 @@
 
 # Hi, I'm Tobii3D 👋
-**A Passionate Developer || FiveM Developer || Futives From Serbia**
+**A Passionate Developer || FiveM Developer || Tobii3D From Serbia**
 
 Email Me 👉 ✉️ **imtobii3D@gmail.com** For Collaboration/Project or Anything Else 😊
 
